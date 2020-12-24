@@ -1,0 +1,1 @@
+# full_minimo_project
